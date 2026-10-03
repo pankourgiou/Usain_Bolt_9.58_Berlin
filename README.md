@@ -1,0 +1,1 @@
+Download the .html and double click it and watch Usain Bolt's mythic 100m race(9.58sec!!) in Berlin with full analysis. file is 8,78Mb on code section it says view raw(file) you still have to click it and then download the file or copy paste it on the notebook. There is more to come but maybe not today!
